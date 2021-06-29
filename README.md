@@ -11,4 +11,4 @@
 - 🤩 I smoke a lot
 - 😞 I don't know why am I sharing this but I felt this place is friendly 
 - 😣 I don't want to write anymore :( I'm done
-This is per June 29, 2021
+-- This is per June 29, 2021
