@@ -1,0 +1,14 @@
+- 👋 Hi, I’m @ZainXX
+- 👀 I’m interested in NOTHING
+- 🤗 Because I'm a failure
+- 🌱 I’m currently trying to learn anything
+- 💞️ I’m a father with two kids and no job
+- 📫 I want to learn game development
+- 🧼 But I know I'm a soap and won't be able to achieve anything
+- 💥 I've lost about eight jobs and my own restaurant so far
+- 🕳 I'm poor, broke and tired
+- 🙄 I gave up working out and lost about 30kg, Not I'm a 61kg male (166 cm)
+- 🤩 I smoke a lot
+- 😞 I don't know why am I sharing this but I felt this place is friendly 
+- 😣 I don't want to write anymore :( I'm done
+This is per June 29, 2021
